@@ -1,1 +1,2 @@
 # **4W's & 1H:** #
+•	Who- The primary practical use of a time, day date and calculator is to identify days date to be informed about. Clock is to display the time. A scientific calculator is typically used to perform calculations, ranging from basic arithmetic to complex mathematics. So all these together performs in a single gadget. 
